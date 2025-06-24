@@ -1,1 +1,3 @@
-![1000072129](https://github.com/user-attachments/assets/7c40264a-a39b-466d-be08-2110e5d4e413)
+![1000072129](https://github.com/user-attachments/assets/f023cc07-f623-482e-9e82-b970f2ac6103)
+
+<p align= "center">⪩⪨  ⸻ 𝐭𝐨𝐠𝐞𝐭𝐡𝐞𝐫 𝑠𝑖𝑛𝑐𝑒 ⋆ 𝟐𝟒 . 𝟎𝟒 . 𝟐𝟎𝟐𝟒</p>
