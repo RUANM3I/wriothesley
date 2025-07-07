@@ -10,7 +10,7 @@ ___
 
 <i>Sé que tu pasado no fue perfecto,
 que tu vida se caracterizó por el vandalismo.
-Sin embargo, no puedo evitar sonreir al ver en lo que te convertiste; no dejaste que tus acciones te arrastren, sino que te transformaste y conviviste con esas largas cicatrices.</i>
+Sin embargo, una sonrisa se posa sobre mis labios al ver en lo que te convertiste; no dejaste que tus acciones te arrastren, sino que te transformaste y conviviste con esas largas cicatrices.</i>
 
 <i>Aunque digas que no es "nada", para mí lo es todo.
 Me enamora lo que sos, y lo mucho que luchaste para serlo.
