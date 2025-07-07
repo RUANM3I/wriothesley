@@ -1,10 +1,10 @@
-___
-
 ![1000072129](https://github.com/user-attachments/assets/f023cc07-f623-482e-9e82-b970f2ac6103)
 
 <p align= "center">⪩⪨ ⸻ 𝐭𝐨𝐠𝐞𝐭𝐡𝐞𝐫 𝑠𝑖𝑛𝑐𝑒 💍 𝟐𝟒 . O𝟒 . 𝟐𝟒</p>
 
 ___
+
+ “➆ㅤ. 7 . 2025”
 
 <i>Sé que tu pasado no fue perfecto,
 que tu vida se caracterizó por el vandalismo.
@@ -21,3 +21,9 @@ Sos así por todo lo que viviste, pero no lo tomas como excusa para hacer el mal
 <i>Pasaría todo el día abrazada a vos, besando cada una de tus cicatrices mientras te recuerdo, en voz alta, lo fuerte que te convertiste. Me encantaría sanar, de esa forma, las cicatrices de tu interior; aquellas que resultan invisibles para algunos, pero para mí no.</i>
 
 <i>El pasado hecho está, pero quisiera que conmigo experimentes una vida mejor donde seas vos, y no "el Duque" o "Su gracia."</i>
+
+___
+
+𝒕𝒐᎓ 𝓦𝓻𝓲𝓸𝓽𝓱𝓮𝓼𝓵𝓮𝔂 ㅤㅤㅤㅤㅤ
+<br>
+𝒇𝒓𝒐𝒎᠄ 𝓜𝓮𝓻𝓾
