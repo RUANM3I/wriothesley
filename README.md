@@ -19,6 +19,6 @@ Suspiro al pensar en ti, en lo afortunada que soy de ver tu faceta más tranquil
 
 Sos lo mejor que me pasó, nunca pensé caer rendida y tan enamorada de alguien. Mis enamoramientos suelen ser pasajeros, pero con vos, es único y genuino: adoro tu madurez, adoro tu vulnerabilidad, adoro tus sonrisas pequeñas, y adoro ver el sol iluminar tu rostro durante el atardecer.
 
-Pasaría todo el día abrazada a vos, besando cada una de tus cicatrices mientras te recuerdo lo fuerte que sos. Me encantaría sanar, de esa forma, las cicatrices que tenes en el interior; aquellas que resultan invisibles para algunos, pero para mí no.
+Pasaría todo el día abrazada a vos, besando cada una de tus cicatrices mientras te recuerdo lo fuerte que sos. Me encantaría sanar, de esa forma, las cicatrices de tu interior; aquellas que resultan invisibles para algunos, pero para mí no.
 
 El pasado hecho está, pero quisiera que conmigo experimentes una vida mejor donde seas vos, y no "el Duque" o "Su gracia."
