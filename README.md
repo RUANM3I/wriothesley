@@ -24,6 +24,8 @@ Sos así por todo lo que viviste, pero no lo tomas como excusa para hacer el mal
 
 <i>El pasado hecho está, pero quisiera que conmigo experimentes una vida mejor donde seas vos, y no "el Duque" o "Su gracia."</i>
 
+<br>
+
 ___
 
 𝒕𝒐᎓ 𝓦𝓻𝓲𝓸𝓽𝓱𝓮𝓼𝓵𝓮𝔂 ㅤㅤㅤㅤㅤ
