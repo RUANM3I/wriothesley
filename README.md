@@ -2,7 +2,8 @@
 
 <p align= "center">⪩⪨ ⸻ 𝐭𝐨𝐠𝐞𝐭𝐡𝐞𝐫 𝑠𝑖𝑛𝑐𝑒 💍 𝟐𝟒 . O𝟒 . 𝟐𝟒</p>
 
-___
+![1000072128](https://github.com/user-attachments/assets/31ec4f01-15e6-4ba0-ba44-b65d947c55a6)
+
 
  “➆ㅤ. 7 . 2025”
 
@@ -22,7 +23,8 @@ Sos así por todo lo que viviste, pero no lo tomas como excusa para hacer el mal
 
 <i>El pasado hecho está, pero quisiera que conmigo experimentes una vida mejor donde seas vos, y no "el Duque" o "Su gracia."</i>
 
-___
+![1000072128](https://github.com/user-attachments/assets/06937d26-449b-418a-b478-bc4349b079c4)
+
 
 𝒕𝒐᎓ 𝓦𝓻𝓲𝓸𝓽𝓱𝓮𝓼𝓵𝓮𝔂 ㅤㅤㅤㅤㅤ
 <br>
